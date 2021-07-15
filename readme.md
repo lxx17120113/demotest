@@ -1,1 +1,1 @@
-一把十手
+one ba ten hands
